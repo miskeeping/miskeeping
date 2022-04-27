@@ -1,16 +1,18 @@
-### Hi there 👋
+# hi! i'm naku!
+`naa-koo`
 
-<!--
-**miskeeping/miskeeping** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- i'm 19
+- i'm a girl (she/they)
+- i'm stupid :trollface:
+- i make music, videos and other stuff
+- i'm a qa tester for various platforms
+- i love rhythm games (sdvx, chuni, maimai, etc.)
 
-Here are some ideas to get you started:
+## check me out!
+[Website](https://miskeeping.com)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[Twitter](https://twitter.com/miskeeping)
+
+[YouTube](https://youtube.com/miskeeping)
+
+[Cash App](https://cash.app/$bigjuicyballs)
