@@ -2,10 +2,11 @@
 `naa-koo`
 
 - i'm 19
-- i'm a girl (she/they)
+- i'm nonbinary (she/he/they)
 - i'm stupid :trollface:
 - i make music, videos and other stuff
 - i'm a qa tester for various platforms
+- i'm your mother's favorite
 - i love rhythm games (sdvx, chuni, maimai, etc.)
 
 ## check me out!
