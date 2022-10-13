@@ -1,7 +1,7 @@
 # hi! i'm naku!
 `naa-koo`
 
-- i'm 10
+- i'm 20
 - i'm a dog (pup/they)
 - i'm stupid :trollface:
 - i make music, videos and other stuff
