@@ -5,15 +5,13 @@
 - i'm a dog (pup/they)
 - i'm stupid :trollface:
 - i make music, videos and other stuff
-- i'm a qa tester for various platforms
-- i'm your mother's favorite
+- i've done qa for multiple platforms & people
+- i use a Qin F21 Pro & a Kyocera 902kc
 - i love rhythm games (sdvx, chuni, maimai, etc.)
 
 ## check me out!
-[Website](https://miskeeping.com)
+[website](https://naku.lol)
 
-[Twitter](https://twitter.com/miskeeping)
+[twitter](https://twitter.com/miskeeping)
 
-[YouTube](https://youtube.com/miskeeping)
-
-[Cash App](https://cash.app/$bigjuicyballs)
+`blog coming soon! thanks for clicking on my profile! <3`
