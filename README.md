@@ -1,16 +1,15 @@
 # hi! i'm naku!
 `naa-koo`
 
-- i'm 21
-- i'm a dog (pup/they)
+- i'm 22
+- i'm a dog thing (they/them/pup?)
 - i'm stupid :trollface:
 - i make music, videos and other stuff
 - i've done qa for multiple platforms & people
-- i use a Qin F21 Pro, Qin F22 Pro & a Kyocera 902kc
 - i love rhythm games (sdvx, chuni, maimai, etc.)
 
 ## check me out!
-[website](https://naku.lol)
+[website](https://uwu.dog)
 
 [twitter](https://twitter.com/miskeeping)
 
