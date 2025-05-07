@@ -2,7 +2,7 @@
 `naa-koo`
 
 - i'm 22
-- i'm a dog thing (they/them/pup?)
+- i'm a dog thing (they/them)
 - i'm stupid :trollface:
 - i make music, videos and other stuff
 - i've done qa for multiple platforms & people
